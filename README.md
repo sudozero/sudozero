@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sudozero
+- 👀 I’m interested in ererything
+- 🌱 I’m currently learning ererything
